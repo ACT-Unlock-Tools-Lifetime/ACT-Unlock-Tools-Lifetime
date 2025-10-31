@@ -14,7 +14,7 @@
 ---
 
 ## About
-**ACT Unlock Tools Lifetime Now** gives you instant access to battle-tested unlock assets. Remove FRP, bypass iCloud, unlock screen — optimized for ACT Unlock Tools 2025, ready for trial users.
+**ACT Unlock Tools Lifetime Now** gives you instant access to battle-tested unlock assets. Remove FRP, bypass iCloud, unlock screen — optimized for ACT Unlock Tools, ready for trial users.
 
 ---
 
